@@ -1,4 +1,4 @@
-<h1 align="center"> Oii! Me chamo Tamires! </h1>
+<h1 align="center"> \(0^◇^0)/ Oii! Me chamo Tamires! 🍓 </h1>
 
 
 ### 👻 Sobre mim - 
