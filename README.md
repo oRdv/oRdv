@@ -7,7 +7,8 @@
 - 📚 Estudo Desenvolvimento de Sistemas no SENAI Jandira 
 - 👨‍💻 Criativa
 - 🔎 Aprendizado rápido
-- 🌟 Estilos váriados
+- 🌟 Linguagens variadas
+- ☁️ Inicializando em Cloud!
 
 ### 😈 GitHub
 <div style="display: inline_block" align="center">
