@@ -1,3 +1,4 @@
+<img scr="https://i.pinimg.com/originals/35/49/be/3549beaae0ba185e62d53e57144caa0d.gif">
 <h1 align="center"> \(0^◇^0)/ Oii! Me chamo Tamires! </h1>
 
 
