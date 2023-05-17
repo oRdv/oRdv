@@ -1,4 +1,4 @@
-<img src="https://giffiles.alphacoders.com/215/215297.gif">
+<img src="https://i.pinimg.com/originals/e6/d7/20/e6d7207d515a89b34a9b89b0da38c5ab.gif">
 
 <h1 align="center"> \(0^◇^0)/ Oii! Me chamo Tamires! </h1>
 
