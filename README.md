@@ -1,4 +1,6 @@
+<div align="center">
 <img src="https://i.pinimg.com/originals/2f/cd/55/2fcd557a4f899e710841f3359a2e4a1e.gif">
+</div>
 
 <h1 align="center"> 🌼 Oii! Me chamo Tamires! </h1>
 
