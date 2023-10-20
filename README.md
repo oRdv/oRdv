@@ -1,4 +1,4 @@
-<img src="[https://i.pinimg.com/originals/cf/23/d5/cf23d5c33ff1ad50cf49d02721b4b5e2.gif](https://i.pinimg.com/originals/2f/cd/55/2fcd557a4f899e710841f3359a2e4a1e.gif)">
+<img src="https://i.pinimg.com/originals/2f/cd/55/2fcd557a4f899e710841f3359a2e4a1e.gif">
 
 <h1 align="center"> 🌼 Oii! Me chamo Tamires! </h1>
 
