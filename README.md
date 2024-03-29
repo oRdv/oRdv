@@ -9,7 +9,6 @@
 - 👨‍💻 Criativa
 - 🔎 Aprendizado rápido
 - 🌟 Linguagens variadas
-- ☁️ Inicializando em Cloud!
 
 ### 👽 GitHub
 <div style="display: inline_block" align="center">
