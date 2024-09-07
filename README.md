@@ -9,6 +9,8 @@
 - 👨‍💻 Criativa
 - 🔎 Aprendizado rápido
 - 🌟 Linguagens variadas
+- 🐈 Amo gatos!
+- 🎨 Apaixonada em artesanato
 
 ### 👽 GitHub
 <div style="display: inline_block" align="center">
