@@ -5,7 +5,7 @@
 <h1 align="center"> 🌼 Oii! Me chamo Tamires! </h1>
 
 ### 👻 Sobre mim - 
-- 📚 Estudo Desenvolvimento de Sistemas no SENAI Jandira 
+- 📚 Formada em DS
 - 👨‍💻 Criativa
 - 🔎 Aprendizado rápido
 - 🌟 Linguagens variadas
